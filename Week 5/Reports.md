@@ -7,7 +7,7 @@
     
 - So standing on the fact that there is a heated competition going on in the above mentioned places, I would advice the Italian Chef to look at places like:
    - Kensington Market, Chinatown, and
-   - First Canada Place, UnderGround City to target a higher population and if the food is good and their is good customer service, it would make the restaurant grown rapidly
+   - First Canada Place, UnderGround City to target a higher population and if the food is good and the restaurant offer good customer service, it would cause the restaurant to grow rapidly
    
 - Other alternatives are:
    - North Toronto West,
